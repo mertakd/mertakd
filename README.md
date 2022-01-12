@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **mert_1102@hotmail.com**
 
-- ⚡ Fun fact **I am workaholic :D**
+- ⚡ Fun fact **I am a workaholic :D**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
